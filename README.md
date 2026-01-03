@@ -1,5 +1,5 @@
 Ouo
 
-Fucing code.
+Fucking code.
 
 Take it and do not thank.
